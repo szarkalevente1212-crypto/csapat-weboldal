@@ -1,3 +1,2 @@
-# huge cock
-
+# kicsi a szarka de nagy a fa...
 közös HTML projekt
