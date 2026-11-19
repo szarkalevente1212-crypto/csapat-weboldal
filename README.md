@@ -1,2 +1,2 @@
-# kicsi a szarka de nagy a fa...
+# tapolca team
 közös HTML projekt
