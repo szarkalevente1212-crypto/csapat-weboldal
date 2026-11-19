@@ -1,2 +1,2 @@
-# tapolca team
+# Tapolca team
 közös HTML projekt
